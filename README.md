@@ -1,2 +1,2 @@
-This is cornelius and tawfiq project
+This is Cornelius and Tawfiq project
 
